@@ -1,2 +1,1 @@
-# Xiaozhi_Control
-小智语音交互
+https://lingdongfangcheng.feishu.cn/wiki/JxYpwRZoeiv4zhk5VGxcEznnnIr?from=from_copylink
